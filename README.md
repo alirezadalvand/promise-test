@@ -2,8 +2,8 @@
 
 
 Hey u...
-yeah i'm talking with u Mr pourhadi, keep your nose out ! ! !
+yeah i'm talking with u , keep your nose out ! ! !
 
-get lost from my repository
+ leave now....
 
 got it !!! 
